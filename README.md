@@ -12,6 +12,7 @@ What Is a Friday Gift Card?
 A Friday Gift Card is a popular digital and physical card used for retail, dining, and online purchases. Known for its sleek user experience and wide acceptance across various brands, it has become a go-to option for holidays, birthdays, and employee appreciation.
 
 ✅[Click Hear For Get Now](file:///C:/Users/MCB/Desktop/CPA/landing%20page/Amazon%20Gift%20Card.html)
+
 ✅[Click Hear For Get Now](file:///C:/Users/MCB/Desktop/CPA/landing%20page/Amazon%20Gift%20Card.html)
 
 What’s New in the 2025 Update?
